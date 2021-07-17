@@ -58,4 +58,4 @@
    - Prepare a Good Answer for "*Tell me about yourself*" and "*Why do you want to Join Goldman Sachs*" which highlights your strong points and Divert the rest of the Interview towards it
 
 
-   ** ALL THE BEST **
+   **ALL THE BEST**
